@@ -1,8 +1,8 @@
 # bulk-email-verified-list
-Donwloaded from https://vlist.ricomart.com/
-__@gmail.com
-All are verified bulk verified email list from across the world . 20M Verified email list & 1M+ opened emails list
-14greeshma<br><br>
+Donwloaded from https://vlist.ricomart.com/ <br>
+Append this __@gmail.com <br>
+All are verified bulk verified email list from across the world . 20M Verified email list & 1M+ opened emails list<br>
+14greeshma<br>
 14husyn<br>
 14jinsha<br>
 14sumann<br>
